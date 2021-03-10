@@ -1,7 +1,7 @@
 ## Welcome to Lucas County Emergency Management of roblox
 
 
-more comeing soon!
+more coming soon!
 
 ### Markdown
 
